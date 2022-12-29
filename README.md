@@ -3,7 +3,7 @@
 - 🧑‍💻 普通计科大四学生
 - 🚀 即将毕业
 - 👾 哔哩哔哩：<a href="[https://space.bilibili.com/402779077" target="_blank](https://b23.tv/jXD9h4d)"></a>
-- 💬 微信：fan999666999
+- 💬 微信：yzf12386
 
 ## 今年汇总 ✨
 
