@@ -2,7 +2,7 @@
 
 - 🧑‍💻 普通计科大四学生
 - 🚀 即将毕业
-- 👾 哔哩哔哩：<a href="[https://space.bilibili.com/402779077" target="_blank](https://b23.tv/jXD9h4d)"></a>
+- 👾 哔哩哔哩：<a href="[https://space.bilibili.com/402779077" target="_blank](https://b23.tv/jXD9h4d)">云之帆丶</a>
 - 💬 微信：yzf12386
 
 ## 今年汇总 ✨
